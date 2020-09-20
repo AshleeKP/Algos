@@ -18,4 +18,4 @@ Please reach out to me!
 
 [LinkedIn:](https://www.linkedin.com/in/ashleepitock/)
 
-[Personal Website: STILL UNDERCONSTRUCTION](www.ashlee.nyc)
+[Personal Website: STILL UNDERCONSTRUCTION](http://www.ashlee.nyc/)
